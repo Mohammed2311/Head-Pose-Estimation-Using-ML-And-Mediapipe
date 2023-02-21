@@ -8,12 +8,5 @@ test on image
 test on video 
 
 
-
-
-
-
-
-
-![download](https://user-images.githubusercontent.com/64024884/220265731-4bf1a17c-e9fa-43af-b217-280766980a41.mp4)
-
+https://drive.google.com/drive/folders/1Krd0szK_54oPPBa7dw1Be5VGw2ckT1w3?usp=share_link
 
