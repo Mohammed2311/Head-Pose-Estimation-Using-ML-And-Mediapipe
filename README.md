@@ -14,10 +14,6 @@ test on video
 
 
 
-
-
-https://user-images.githubusercontent.com/64024884/220265596-6b852eb1-130f-4790-80a9-31ddeaf69811.mp4
-
-
+![download](https://user-images.githubusercontent.com/64024884/220265731-4bf1a17c-e9fa-43af-b217-280766980a41.mp4)
 
 
